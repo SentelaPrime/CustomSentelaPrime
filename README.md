@@ -1,2 +1,2 @@
-# Felgrand
-Customs Cards de Felgrand hechas por un amigo
+# Cartas Customs
+Customs Cards hechas por mi XD
